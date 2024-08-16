@@ -1,16 +1,57 @@
-## Hi there 👋
+Day-o, day-ay-ay-o
+Daylight come and me wan' go home
+Day, me say day, me say day, me say day, me say day, me say day-ay-ay-o
+Daylight come and me wan' go home
 
-<!--
-**Woukie/woukie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Work all night on a drink a rum
+(Daylight come and me wan' go home)
+Stack banana 'til the mornin' come
+(Daylight come and me wan' go home)
 
-Here are some ideas to get you started:
+Come, mister tally man, tally me banana
+(Daylight come and me wan' go home)
+Come, mister tally man, tally me banana
+(Daylight come and me wan' go home)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Lift six foot, seven foot, eight foot, bunch
+(Daylight come and me wan' go home)
+Six foot, seven foot, eight foot, bunch
+(Daylight come and me wan' go home)
+
+Day, me say day-ay-ay-o
+(Daylight come and me wan' go home)
+Day, me say day, me say day, me say day, me say day, me say day
+(Daylight come and me wan' go home)
+
+A beautiful bunch of ripe banana
+(Daylight come and me wan' go home)
+Hide the deadly black tarantula
+(Daylight come and me wan' go home)
+See pop shows near London
+Get tickets as low as $430
+You might also like
+The Alchemy
+Taylor Swift
+Family Matters
+Drake
+The Tortured Poets Department
+Taylor Swift
+Lift six foot, seven foot, eight foot, bunch
+(Daylight come and me wan' go home)
+Six foot, seven foot, eight foot, bunch
+(Daylight come and me wan' go home)
+
+Day, me say day-ay-ay-o
+(Daylight come and me wan' go home)
+Day, me say day, me say day, me say day, me say day, me say day
+(Daylight come and me wan' go home)
+
+Come, mister tally man, tally me banana
+(Daylight come and me wan' go home)
+Come, mister tally man, tally me banana
+(Daylight come and me wan' go home)
+
+Day-o, day-ay-ay-o
+(Daylight come and me wan' go home)
+Day, me say day, me say day, me say day, me say day, me say day-ay-ay-o
+(Daylight come and me wan' go home)
