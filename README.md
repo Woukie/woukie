@@ -1,3 +1,7 @@
+monero:
+
+47ovuLKmk4AfUzv6FgDvXwcYSKqjS9Qg1RhNWtL4TozHWosCeTD8RPTXVvsZbS7jHkPsWie56eUwSd3Chu4vQ91qC8Q9bXS
+
 ```
 Day-o, day-ay-ay-o
 Daylight come and me wan' go home
